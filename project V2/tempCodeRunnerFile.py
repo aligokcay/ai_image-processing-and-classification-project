@@ -1,1 +1,0 @@
-C:/Users/Mehmet Ali/Desktop/Department/2/optimization/project V2/
